@@ -1,2 +1,1 @@
-https://www.mediafire.com/file/tupd5ixftkxpf70/Zombies.mrpack/file
-https://www.mediafire.com/file/nlswkiqwlordpmg/mods.zip/file
+https://www.mediafire.com/file/yy45hng7fk5fr2v/mods.zip/file
